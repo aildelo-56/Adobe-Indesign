@@ -216,4 +216,4 @@ Adobe InDesign is offered as a complete free version with all features and updat
 Unlock your creative potential today with Adobe InDesign! Download the full version for free and start designing stunning publications.
 
 ---
-**Last updated:** 2026-10-26 12:39:40 UTC
+**Last updated:** 2026-10-26 19:06:29 UTC
